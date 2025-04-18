@@ -1,1 +1,1 @@
-[tralalerotralala](tralalerotralala.wiki)
+[tralalerotralala](https://tralalerotralala.wiki)
